@@ -1,4 +1,4 @@
-
+run for brainrots stealth Script is the best run for brainrots Script, featuring auto-upgrade and one-hit kill. Safe and powerful for all your needs.
 
 
 
